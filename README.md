@@ -1,1 +1,1 @@
-![Untitled](https://prod-files-secure.s3.us-west-2.amazonaws.com/fc5820b8-0f1d-45c3-a059-c1a1ac0c9257/adb2d11a-a5c8-498c-97a1-372ad588802f/Untitled.png)
+![Untitled](https://github.com/mslee98/scroll-tutorial/assets/94597019/5696ad16-c5ac-479f-b38b-8d2c981ce04d)
